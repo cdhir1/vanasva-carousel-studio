@@ -1,1 +1,0 @@
-# vanasva-carousel-studio
